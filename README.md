@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Jordan Richmond
 - 👀 I’m interested in Astrophysics & Astronomy. More specifically stellar evolution.
-- 🌱 I’m currently studying at Keele University as a 3rd year astrophysics student.
-- 📫 How to reach me x0d57@students.keele.ac.uk
+- 🌱 I’m currently the Science Technician at Outwood Academy Kirkby.
+- 📫 How to reach me rich.joe452@hotmail.com
 
 
 ## ✉️ Find me on:
